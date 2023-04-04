@@ -1,3 +1,3 @@
 - Hi, I’m @jk367, James Kettle, Information Science Student at Columbia University. 
-- Currently looking for a SWE job after I graduate in may 2023.
+- Currently looking for a Job after I graduate in may 2023.
 - Currently working working on some side projects.
