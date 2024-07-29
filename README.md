@@ -1,5 +1,4 @@
-Hi, my name is James Kettle and I'm working on CloudCap.
-
-Based in NYC, like reading and eletronic music. 
+Hi, my name is James Kettle and I'm a writer and photographer. 
+I'm based in NYC and like reading and eletronic music. 
 
 jameskettle.io
