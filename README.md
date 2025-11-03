@@ -1,2 +1,2 @@
-Hi, my name is J.M. Kettle and I am a writer and a photographer. 
-I'm based in NYC and like reading and eletronic music. 
+Hi, my name is James Kettle and I work at Faraday. 
+I'm based in NYC 
